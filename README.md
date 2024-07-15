@@ -5,7 +5,6 @@
 - 📫 How to reach me
 - Linkediin :- Jash Agicha
 - Instagram :- _.jassh_.11
-- Whatsapp :- 7048300395
 - ⚡ Fun fact :- Always ready to creat someting attractive and exciting to get enormous experience.
   
 
