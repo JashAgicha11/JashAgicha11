@@ -5,7 +5,7 @@
 - 📫 How to reach me
 - Linkediin :- Jash Agicha
 - Instagram :- _.jassh_.11
-- ⚡ Fun fact :- Always ready to creat someting attractive and exciting to get enormous experience.
+- ⚡ Fun fact :- Always ready to create someting attractive and exciting to get enormous experience.
   
 
 <!---
